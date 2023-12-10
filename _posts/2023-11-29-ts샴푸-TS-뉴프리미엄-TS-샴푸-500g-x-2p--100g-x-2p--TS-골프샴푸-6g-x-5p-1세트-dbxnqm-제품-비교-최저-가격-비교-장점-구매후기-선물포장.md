@@ -43,7 +43,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 20%  59,900   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 85  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -60,7 +61,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 89%  400,000   원
 - 가격: <span style='color:red'>35,900원</span>
-- 리뷰수: 1339  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6533852113&traceid=V0-153&itemId=14522065426&vendorItemId=87112584871)
 
 ---
 
@@ -77,7 +79,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 17%  59,900   원
 - 가격: <span style='color:red'>52,710원</span>
-- 리뷰수: 386  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=87899405759)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18396917845&vendorItemId=87899405759)
 
 ---
 
@@ -94,7 +97,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 70%  45,000   원
 - 가격: <span style='color:red'>38,800원</span>
-- 리뷰수: 1398  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5423800638&traceid=V0-153&itemId=8198038897&vendorItemId=85927644255)
 
 ---
 
@@ -111,7 +115,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>23,000원</span>
-- 리뷰수: 249  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240772819&traceid=V0-153&itemId=18396920596&vendorItemId=85539840573)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240772819&traceid=V0-153&itemId=18396920596&vendorItemId=85539840573)
 
 ---
 
@@ -128,7 +133,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 51%  22,500   원
 - 가격: <span style='color:red'>33,800원</span>
-- 리뷰수: 5220  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7597361431&traceid=V0-153&itemId=20143669788&vendorItemId=87236998523)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7597361431&traceid=V0-153&itemId=20143669788&vendorItemId=87236998523)
 
 ---
 
@@ -145,7 +151,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>34,200원</span>
-- 리뷰수: 21  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=8056743069&vendorItemId=75539051384)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=8056743069&vendorItemId=75539051384)
 
 ---
 
@@ -162,7 +169,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 
 - 가격: <span style='color:red'>68,670원</span>
-- 리뷰수: 10  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6760621482&traceid=V0-153&itemId=15843291226&vendorItemId=86984953752)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6760621482&traceid=V0-153&itemId=15843291226&vendorItemId=86984953752)
 
 ---
 
@@ -179,7 +187,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 78%  86,000   원
 - 가격: <span style='color:red'>32,800원</span>
-- 리뷰수: 1001  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240774049&traceid=V0-153&itemId=18396925476&vendorItemId=85539845506)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240774049&traceid=V0-153&itemId=18396925476&vendorItemId=85539845506)
 
 ---
 
@@ -196,7 +205,8 @@ TS샴푸는 이러한 장점들로 인해 탈모 고민이 있는 많은 사람�
 
 - 할인율과 원래가격: 83%  120,000   원
 - 가격: <span style='color:red'>30,900원</span>
-- 리뷰수: 2439  [**[리뷰 보러가기 클릭]**](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18196778846&vendorItemId=87915729359)
+
+[![](/discount_price.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7122286149&traceid=V0-153&itemId=18196778846&vendorItemId=87915729359)
 
 ---
 **<h2>TS샴푸 구매시 주의점</h2>**
