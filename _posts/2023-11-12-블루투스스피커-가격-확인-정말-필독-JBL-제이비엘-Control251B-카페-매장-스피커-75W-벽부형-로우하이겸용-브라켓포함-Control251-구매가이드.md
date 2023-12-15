@@ -25,7 +25,7 @@ pin: true
 
 ## 1. JBL 제이비엘 Control25-1(B) 카페 매장 스피커 75W 벽부형 로우하이겸용 브라켓포함, Control25-1
 
-![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3002/c27f80a6fb272c2367b6042079c5319eda445d83b4b6bacc2d0456657d7c.jpg)
+[![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/3002/c27f80a6fb272c2367b6042079c5319eda445d83b4b6bacc2d0456657d7c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104840509&traceid=V0-153&itemId=17744642461&vendorItemId=84909234457)
 
 
 👍 [JBL 제이비엘 Control25-1(B) 카페 매장 스피커 75W 벽부형 로우하이겸용 브라켓포함, Control25-1 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104840509&traceid=V0-153&itemId=17744642461&vendorItemId=84909234457) 👌 
@@ -43,7 +43,7 @@ pin: true
 
 ## 2. 앤커 사운드코어 블루투스 스피커, A3102, 블랙
 
-![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8490375320146874-2f90a425-98ff-482d-9ee1-a0e46d6e0695.jpg)
+[![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8490375320146874-2f90a425-98ff-482d-9ee1-a0e46d6e0695.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268469885&traceid=V0-153&itemId=18531221238&vendorItemId=75165988681)
 
 
 👍 [앤커 사운드코어 블루투스 스피커, A3102, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7268469885&traceid=V0-153&itemId=18531221238&vendorItemId=75165988681) 👌 
@@ -61,7 +61,7 @@ pin: true
 
 ## 3. 트리빗 스톰박스 프로 방수 휴대용 블루투스 스피커 BTS31
 
-![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0f3a/13ffbb0548ae63fc840f46668903a35979c82b720a7f5f0f5514556ac173.jpg)
+[![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0f3a/13ffbb0548ae63fc840f46668903a35979c82b720a7f5f0f5514556ac173.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458541040&traceid=V0-153&itemId=19435230342&vendorItemId=87175112702)
 
 
 👍 [트리빗 스톰박스 프로 방수 휴대용 블루투스 스피커 BTS31 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7458541040&traceid=V0-153&itemId=19435230342&vendorItemId=87175112702) 👌 
@@ -79,7 +79,7 @@ pin: true
 
 ## 4. 트리빗 휴대용 스톰박스 마이크로2 블루투스 스피커, BTS12S, 블랙
 
-![블루투스스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/515a/c77fba5608b3b8c3d1dc529506d084e58d695821e232888de51fd70f4db7.jpg)
+[![블루투스스피커 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/515a/c77fba5608b3b8c3d1dc529506d084e58d695821e232888de51fd70f4db7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6585679114&traceid=V0-153&itemId=14838909558&vendorItemId=82301873521)
 
 
 👍 [트리빗 휴대용 스톰박스 마이크로2 블루투스 스피커, BTS12S, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6585679114&traceid=V0-153&itemId=14838909558&vendorItemId=82301873521) 👌 
@@ -97,7 +97,7 @@ pin: true
 
 ## 5. 더씽 LED 블루투스 스피커, M61, 아이보리
 
-![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/9dwlo4pd/486e279ad3cc45a698e9c41b76eb5295.jpg)
+[![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/9dwlo4pd/486e279ad3cc45a698e9c41b76eb5295.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381329329&traceid=V0-153&itemId=19063958292&vendorItemId=86186814617)
 
 
 👍 [더씽 LED 블루투스 스피커, M61, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381329329&traceid=V0-153&itemId=19063958292&vendorItemId=86186814617) 👌 
@@ -115,7 +115,7 @@ pin: true
 
 ## 6. 더씽 휴대용 미니 블루투스 스피커 The sing M41, 아이보리
 
-![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/glffw3f3/517c3d5d73f24f3c8dbc10459a458079.jpg)
+[![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/glffw3f3/517c3d5d73f24f3c8dbc10459a458079.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7124280203&traceid=V0-153&itemId=17845292915&vendorItemId=85008812482)
 
 
 👍 [더씽 휴대용 미니 블루투스 스피커 The sing M41, 아이보리 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7124280203&traceid=V0-153&itemId=17845292915&vendorItemId=85008812482) 👌 
@@ -133,7 +133,7 @@ pin: true
 
 ## 7. 삼성전자 JBL GO3 블루투스 스피커 콤팩트한 사이즈 충전식배터리, {BLUP}블루핑크
 
-![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6428/53dff27336fad59c49367e2c60edd09fdd01d244287ec86156981e833141.jpg)
+[![블루투스스피커 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/6428/53dff27336fad59c49367e2c60edd09fdd01d244287ec86156981e833141.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6543818567&traceid=V0-153&itemId=14580704963&vendorItemId=84614267652)
 
 
 👍 [삼성전자 JBL GO3 블루투스 스피커 콤팩트한 사이즈 충전식배터리, {BLUP}블루핑크 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6543818567&traceid=V0-153&itemId=14580704963&vendorItemId=84614267652) 👌 
@@ -151,7 +151,7 @@ pin: true
 
 ## 8. 브리츠 프리미엄 블루투스 스피커, BZ-JB5606, 혼합색상
 
-![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/70fa/5202be4bd5cd2fcd915dfc09097562965a405087b7a2aa7c1dd6cb564f8c.jpg)
+[![블루투스스피커 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/70fa/5202be4bd5cd2fcd915dfc09097562965a405087b7a2aa7c1dd6cb564f8c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=86956809&traceid=V0-153&itemId=273240971&vendorItemId=86852543976)
 
 
 👍 [브리츠 프리미엄 블루투스 스피커, BZ-JB5606, 혼합색상 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=86956809&traceid=V0-153&itemId=273240971&vendorItemId=86852543976) 👌 
@@ -169,7 +169,7 @@ pin: true
 
 ## 9. 더씽 LED 블루투스 스피커, M61, 블랙
 
-![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/e30xmuiu/43d64a4f19ec49e19413aa526f02b143.jpg)
+[![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/e30xmuiu/43d64a4f19ec49e19413aa526f02b143.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381329329&traceid=V0-153&itemId=19063295583&vendorItemId=86186165970)
 
 
 👍 [더씽 LED 블루투스 스피커, M61, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7381329329&traceid=V0-153&itemId=19063295583&vendorItemId=86186165970) 👌 
@@ -187,7 +187,7 @@ pin: true
 
 ## 10. JBl FLIP6 블루투스스피커 출력30W 플립6, 블랙
 
-![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0c41/0f1d1155b5041bb7ebceb48e4e914413c217bb77f8f2506352d9fe35e62f.jpg)
+[![블루투스스피커 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/0c41/0f1d1155b5041bb7ebceb48e4e914413c217bb77f8f2506352d9fe35e62f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047907571&traceid=V0-153&itemId=17445716629&vendorItemId=81303772536)
 
 
 👍 [JBl FLIP6 블루투스스피커 출력30W 플립6, 블랙 <font color=red> 지금 바로 클릭!! </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7047907571&traceid=V0-153&itemId=17445716629&vendorItemId=81303772536) 👌 

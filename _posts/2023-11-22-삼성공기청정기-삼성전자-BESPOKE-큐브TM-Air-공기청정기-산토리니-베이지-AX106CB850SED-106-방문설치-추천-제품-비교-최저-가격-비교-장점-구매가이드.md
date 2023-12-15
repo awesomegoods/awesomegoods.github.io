@@ -34,7 +34,7 @@ pin: true
 
 ## 1. 삼성전자 BESPOKE 큐브TM Air 공기청정기 산토리니 베이지 AX106CB850SED 106㎡ 방문설치
 
-![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/06/18/1/6e0ab78b-b79e-43e3-adc1-02ab89175038.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/02/06/18/1/6e0ab78b-b79e-43e3-adc1-02ab89175038.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116608103&traceid=V0-153&itemId=17806829037&vendorItemId=84970842947)
 
 
 👍 [삼성전자 BESPOKE 큐브TM Air 공기청정기 산토리니 베이지 AX106CB850SED 106㎡ 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7116608103&traceid=V0-153&itemId=17806829037&vendorItemId=84970842947) 👌 
@@ -52,7 +52,7 @@ pin: true
 
 ## 2. 삼성전자 블루스카이 3100 공기청정기 AX033B310GWD 33.1㎡
 
-![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/18/14/8/2e4855de-fdd5-4fc3-9ea0-467d0c711c43.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/18/14/8/2e4855de-fdd5-4fc3-9ea0-467d0c711c43.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926)
 
 
 👍 [삼성전자 블루스카이 3100 공기청정기 AX033B310GWD 33.1㎡ <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7473527911&traceid=V0-153&itemId=19505730851&vendorItemId=86614734926) 👌 
@@ -70,7 +70,7 @@ pin: true
 
 ## 3. 삼성전자 블루스카이 3100 공기청정기 AX033B310GBD 33.1㎡
 
-![삼성공기청정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2978621877215271-d0e94af9-8784-473f-b1ff-5109d697fdf0.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2978621877215271-d0e94af9-8784-473f-b1ff-5109d697fdf0.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131)
 
 
 👍 [삼성전자 블루스카이 3100 공기청정기 AX033B310GBD 33.1㎡ <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7473527911&traceid=V0-153&itemId=17553134041&vendorItemId=80997797131) 👌 
@@ -106,7 +106,7 @@ pin: true
 
 ## 5. 미코 미니 공기청정기 MK-AP-500 20㎡
 
-![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1077492432429589-f3968199-04b7-4d28-9624-b778e6d418fe.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1077492432429589-f3968199-04b7-4d28-9624-b778e6d418fe.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924)
 
 
 👍 [미코 미니 공기청정기 MK-AP-500 20㎡ <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=84018392&traceid=V0-153&itemId=266587316&vendorItemId=3646007924) 👌 
@@ -124,7 +124,7 @@ pin: true
 
 ## 6. 필립스 공기청정기 앱연동 39㎡ AC0650/10
 
-![삼성공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/25/9/6/a99b24ae-3413-4217-8085-1d2cc51e9215.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/07/25/9/6/a99b24ae-3413-4217-8085-1d2cc51e9215.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7487533628&traceid=V0-153&itemId=19572817016&vendorItemId=86680570677)
 
 
 👍 [필립스 공기청정기 앱연동 39㎡ AC0650/10 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7487533628&traceid=V0-153&itemId=19572817016&vendorItemId=86680570677) 👌 
@@ -142,7 +142,7 @@ pin: true
 
 ## 7. 삼성전자 블루스카이 5500 공기청정기 AX060CG500GED 60㎡ 산토리니 베이지 방문설치
 
-![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/17/9/d8a17950-d23d-41e3-928b-4c107980fff9.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/09/21/17/9/d8a17950-d23d-41e3-928b-4c107980fff9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7148852390&traceid=V0-153&itemId=20167932728&vendorItemId=87260201876)
 
 
 👍 [삼성전자 블루스카이 5500 공기청정기 AX060CG500GED 60㎡ 산토리니 베이지 방문설치 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7148852390&traceid=V0-153&itemId=20167932728&vendorItemId=87260201876) 👌 
@@ -160,7 +160,7 @@ pin: true
 
 ## 8. [삼성전자] 삼성전자 블루스카이 공기청정기 AX100N4020WD [택배발송/자가설치] 벽걸이형
 
-![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7fa/f30c07ff0c59efb40e1e811ce9ab42f669e7c2bb289a70705591fbaa5778.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e7fa/f30c07ff0c59efb40e1e811ce9ab42f669e7c2bb289a70705591fbaa5778.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7069683842&traceid=V0-153&itemId=17552716571&vendorItemId=84719573353)
 
 
 👍 [[삼성전자] 삼성전자 블루스카이 공기청정기 AX100N4020WD [택배발송/자가설치] 벽걸이형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7069683842&traceid=V0-153&itemId=17552716571&vendorItemId=84719573353) 👌 
@@ -178,7 +178,7 @@ pin: true
 
 ## 9. 캐리어 클라윈드 CAPS-F080HROWC 공기청정기 구리섬유 헤파필터(H13) 1등급 CA인증 PM2.5 청정면적:24평
 
-![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/37f9/37ebd83984544ba92de04bc0898451b720c8990e6f35224c510c12ab4857.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/37f9/37ebd83984544ba92de04bc0898451b720c8990e6f35224c510c12ab4857.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7629633425&traceid=V0-153&itemId=20246335087&vendorItemId=87649915502)
 
 
 👍 [캐리어 클라윈드 CAPS-F080HROWC 공기청정기 구리섬유 헤파필터(H13) 1등급 CA인증 PM2.5 청정면적:24평 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7629633425&traceid=V0-153&itemId=20246335087&vendorItemId=87649915502) 👌 
@@ -196,7 +196,7 @@ pin: true
 
 ## 10. 삼성전자 BESPOKE 큐브TM Air 공기청정기 라벤더 AX053CB800SLD 53㎡
 
-![삼성공기청정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/3kq0bfdp/dcb766fd6ab74c4788635655977763b4.jpg)
+[![삼성공기청정기 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/3kq0bfdp/dcb766fd6ab74c4788635655977763b4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7135867929&traceid=V0-153&itemId=17904711974&vendorItemId=85067467197)
 
 
 👍 [삼성전자 BESPOKE 큐브TM Air 공기청정기 라벤더 AX053CB800SLD 53㎡ <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7135867929&traceid=V0-153&itemId=17904711974&vendorItemId=85067467197) 👌 

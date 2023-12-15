@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 영창 커즈와일(PRO) 스테이지피아노 SP7GRAND LB
 
-![피아노 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ed40/2a5579518e29a1461420da5152554eedfa4f6e52d31e3e4c148d13a66a57.jpg)
+[![피아노 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ed40/2a5579518e29a1461420da5152554eedfa4f6e52d31e3e4c148d13a66a57.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6586174697&traceid=V0-153&itemId=14841593579&vendorItemId=87491754473)
 
 
 👍 [영창 커즈와일(PRO) 스테이지피아노 SP7GRAND LB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6586174697&traceid=V0-153&itemId=14841593579&vendorItemId=87491754473) 👌 
@@ -50,7 +50,7 @@ pin: true
 
 ## 2. 마루아치 디지털피아노 61key MQ-6132, 혼합색상
 
-![피아노 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3678155711413399-ef9853ad-d290-4c29-b515-0f6a159e37c2.jpg)
+[![피아노 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3678155711413399-ef9853ad-d290-4c29-b515-0f6a159e37c2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1274659214&traceid=V0-153&itemId=2280397614&vendorItemId=70277523232)
 
 
 👍 [마루아치 디지털피아노 61key MQ-6132, 혼합색상 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1274659214&traceid=V0-153&itemId=2280397614&vendorItemId=70277523232) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 토이게이트 파울루스 88건반 해머스타일 디지털피아노 + 스탠드 세트, 블랙
 
-![피아노 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1922392986885585-1692393f-f0e1-491b-8782-ae4c97dff74d.jpg)
+[![피아노 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1922392986885585-1692393f-f0e1-491b-8782-ae4c97dff74d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806676097&traceid=V0-153&itemId=16089975006&vendorItemId=83287713961)
 
 
 👍 [토이게이트 파울루스 88건반 해머스타일 디지털피아노 + 스탠드 세트, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6806676097&traceid=V0-153&itemId=16089975006&vendorItemId=83287713961) 👌 
@@ -88,7 +88,7 @@ pin: true
 
 ## 4. 국산 디지털피아노 88건반 비바체 전자피아노 Vs-650Pro+나무스텐드, Vs-650Pro본체+나무스텐드
 
-![피아노 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/de1c/e13c382c1b3c6957e39d8da99652d4390ff5fb4e5e7f2da72d2862975dcb.jpg)
+[![피아노 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/de1c/e13c382c1b3c6957e39d8da99652d4390ff5fb4e5e7f2da72d2862975dcb.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674410791&traceid=V0-153&itemId=20481616745&vendorItemId=74213833982)
 
 
 👍 [국산 디지털피아노 88건반 비바체 전자피아노 Vs-650Pro+나무스텐드, Vs-650Pro본체+나무스텐드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674410791&traceid=V0-153&itemId=20481616745&vendorItemId=74213833982) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 베이티전문 eleo피아노 접이식피아노 전자피아노 폴딩피아노 88건반 휴대용 충전식 심플리피아노 당일배송, BE_K302, 블랙
 
-![피아노 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1276/19800df41d7808ac6be2e64fe91de94db67a1046d5a6578ae8bdf0e70f6e.png)
+[![피아노 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1276/19800df41d7808ac6be2e64fe91de94db67a1046d5a6578ae8bdf0e70f6e.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7499874858&traceid=V0-153&itemId=19630619389&vendorItemId=86722301268)
 
 
 👍 [베이티전문 eleo피아노 접이식피아노 전자피아노 폴딩피아노 88건반 휴대용 충전식 심플리피아노 당일배송, BE_K302, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7499874858&traceid=V0-153&itemId=19630619389&vendorItemId=86722301268) 👌 
@@ -126,7 +126,7 @@ pin: true
 
 ## 6. 베이티전문 eleo피아노 접이식피아노 전자피아노 폴딩피아노 88건반 휴대용 충전식 심플리피아노 당일배송, BE_K302, 화이트
 
-![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eddd/f31372b489e7ad511bb0f7ec2e0eb4d0d8b32bcad334423c099ef698e693.png)
+[![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/eddd/f31372b489e7ad511bb0f7ec2e0eb4d0d8b32bcad334423c099ef698e693.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7499874858&traceid=V0-153&itemId=19630619388&vendorItemId=86722301259)
 
 
 👍 [베이티전문 eleo피아노 접이식피아노 전자피아노 폴딩피아노 88건반 휴대용 충전식 심플리피아노 당일배송, BE_K302, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7499874858&traceid=V0-153&itemId=19630619388&vendorItemId=86722301259) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 영창 KT-1 KT1 전자디지털피아노 다양한교육기능, 로즈우드
 
-![피아노 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d6f6/0b1f8d7f90896ad91dc20a03b3799d8277990c79b6618a352157b2abdeb7.jpg)
+[![피아노 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/d6f6/0b1f8d7f90896ad91dc20a03b3799d8277990c79b6618a352157b2abdeb7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=26802817&traceid=V0-153&itemId=103705268&vendorItemId=3197500646)
 
 
 👍 [영창 KT-1 KT1 전자디지털피아노 다양한교육기능, 로즈우드 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=26802817&traceid=V0-153&itemId=103705268&vendorItemId=3197500646) 👌 
@@ -164,7 +164,7 @@ pin: true
 
 ## 8. 디에스뮤직 61key 디지털피아노, 블랙, 단품
 
-![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9ef5/def9d14899845a5447a61d922b3aec5dec03a5eb064114faae4bf2eee85f.jpg)
+[![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9ef5/def9d14899845a5447a61d922b3aec5dec03a5eb064114faae4bf2eee85f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326795816&traceid=V0-153&itemId=13213113997&vendorItemId=80629818816)
 
 
 👍 [디에스뮤직 61key 디지털피아노, 블랙, 단품 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6326795816&traceid=V0-153&itemId=13213113997&vendorItemId=80629818816) 👌 
@@ -183,7 +183,7 @@ pin: true
 
 ## 9. 영창 커즈와일 KA50 디지털피아노, 피아노
 
-![피아노 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0ced/6fce78670c3ab737b387a7a4e869a2878f10cfdfb418693b39bc784ff223.jpg)
+[![피아노 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0ced/6fce78670c3ab737b387a7a4e869a2878f10cfdfb418693b39bc784ff223.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7701684942&traceid=V0-153&itemId=20622280754&vendorItemId=87486969839)
 
 
 👍 [영창 커즈와일 KA50 디지털피아노, 피아노 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7701684942&traceid=V0-153&itemId=20622280754&vendorItemId=87486969839) 👌 
@@ -202,7 +202,7 @@ pin: true
 
 ## 10. 토이게이트 교습용 디지털 피아노 슬림형, TYPE A, 핑크
 
-![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/267476202175290-d8b38f8b-dd68-4973-84b7-35fdfc1ab954.jpg)
+[![피아노 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/267476202175290-d8b38f8b-dd68-4973-84b7-35fdfc1ab954.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7691884091&traceid=V0-153&itemId=20571476825&vendorItemId=70061086194)
 
 
 👍 [토이게이트 교습용 디지털 피아노 슬림형, TYPE A, 핑크 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7691884091&traceid=V0-153&itemId=20571476825&vendorItemId=70061086194) 👌 

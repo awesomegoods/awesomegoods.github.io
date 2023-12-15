@@ -37,7 +37,7 @@ pin: true
 
 ## 1. 핍스 essential 메신저백
 
-![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg)
+[![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
 
 
 👍 [핍스 essential 메신저백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281) 👌 
@@ -55,7 +55,7 @@ pin: true
 
 ## 2. 핍스 essential 메신저백
 
-![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg)
+[![메신저백 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/112146319567397-146ce8f0-47b0-4f55-9b25-153c8fba6b8d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281)
 
 
 👍 [핍스 essential 메신저백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=303898059&traceid=V0-153&itemId=956092945&vendorItemId=70994220281) 👌 
@@ -73,7 +73,7 @@ pin: true
 
 ## 3. 커플 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 그릿메신저백
 
-![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cf7b/48c96d2fde50098e18151ef2a7bc2198141c473aa04ba604aab91bd14b05.jpg)
+[![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cf7b/48c96d2fde50098e18151ef2a7bc2198141c473aa04ba604aab91bd14b05.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283)
 
 
 👍 [커플 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 그릿메신저백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6788797238&traceid=V0-153&itemId=15988600420&vendorItemId=83194326283) 👌 
@@ -91,7 +91,7 @@ pin: true
 
 ## 4. 커플 메신저백 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 에펠메신져
 
-![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa55/af1b048a8f4bc9b1e9f797a3b7ffd75f6671dbd4b3cb36050f595992aea3.jpg)
+[![메신저백 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/aa55/af1b048a8f4bc9b1e9f797a3b7ffd75f6671dbd4b3cb36050f595992aea3.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122)
 
 
 👍 [커플 메신저백 크로스백 가방 에코 캔버스 노트북 여행 학생 학교 학원 에펠메신져 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6128639499&traceid=V0-153&itemId=12022054702&vendorItemId=79093840122) 👌 
@@ -109,7 +109,7 @@ pin: true
 
 ## 5. 마르코폴로 홀른 방수 메신저백 MP4009
 
-![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3736312926646612-7ccfeb1a-f190-46ce-bf25-13a969bf7740.jpg)
+[![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3736312926646612-7ccfeb1a-f190-46ce-bf25-13a969bf7740.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816)
 
 
 👍 [마르코폴로 홀른 방수 메신저백 MP4009 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6335220143&traceid=V0-153&itemId=13265111026&vendorItemId=80522768816) 👌 
@@ -127,7 +127,7 @@ pin: true
 
 ## 6. 쥬벨로 시에라 메신저백
 
-![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/uzyz1km2/5493b597e10949ed99467a76a221ac48.jpg)
+[![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/uzyz1km2/5493b597e10949ed99467a76a221ac48.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7396099424&traceid=V0-153&itemId=19132600688&vendorItemId=86252201286)
 
 
 👍 [쥬벨로 시에라 메신저백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7396099424&traceid=V0-153&itemId=19132600688&vendorItemId=86252201286) 👌 
@@ -145,7 +145,7 @@ pin: true
 
 ## 7. 핍스 어보브 메신저백
 
-![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4071970112350272-b0b77331-7ed4-4ba4-a7ca-395167ef6e24.jpg)
+[![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4071970112350272-b0b77331-7ed4-4ba4-a7ca-395167ef6e24.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5585094313&traceid=V0-153&itemId=8939492444&vendorItemId=76226053935)
 
 
 👍 [핍스 어보브 메신저백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5585094313&traceid=V0-153&itemId=8939492444&vendorItemId=76226053935) 👌 
@@ -163,7 +163,7 @@ pin: true
 
 ## 8. 더스위츠 번트 메신저 백 노트북 여행 학생 학교 학원 가방 운동 크로스백
 
-![메신저백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/246b/36dda417c9811accb87aa1e37ed520dac3446100832c40907e56ec90e53e.jpg)
+[![메신저백 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/246b/36dda417c9811accb87aa1e37ed520dac3446100832c40907e56ec90e53e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6872730939&traceid=V0-153&itemId=16446594808&vendorItemId=83147739645)
 
 
 👍 [더스위츠 번트 메신저 백 노트북 여행 학생 학교 학원 가방 운동 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6872730939&traceid=V0-153&itemId=16446594808&vendorItemId=83147739645) 👌 
@@ -181,7 +181,7 @@ pin: true
 
 ## 9. 마르코폴로 랜드 크로스백 MP3028 + 키링 랜덤 발송
 
-![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/23/16/0/75ca81a2-8210-4611-aceb-6495570fb5bc.jpg)
+[![메신저백 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2019/07/23/16/0/75ca81a2-8210-4611-aceb-6495570fb5bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475)
 
 
 👍 [마르코폴로 랜드 크로스백 MP3028 + 키링 랜덤 발송 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=271535556&traceid=V0-153&itemId=853825806&vendorItemId=5167773475) 👌 
@@ -199,7 +199,7 @@ pin: true
 
 ## 10. [귀염뽀짝] 마린메신저 + 동물인형키링set
 
-![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/657c/74be1b929bf29bec6e96ead54d7b9442aa0555a4c5e34abdfb91c922d7e4.jpg)
+[![메신저백 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/657c/74be1b929bf29bec6e96ead54d7b9442aa0555a4c5e34abdfb91c922d7e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6959064774&traceid=V0-153&itemId=16935482169&vendorItemId=84113121980)
 
 
 👍 [[귀염뽀짝] 마린메신저 + 동물인형키링set <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6959064774&traceid=V0-153&itemId=16935482169&vendorItemId=84113121980) 👌 

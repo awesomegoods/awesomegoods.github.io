@@ -27,7 +27,7 @@ pin: true
 
 ## 1. 스케쳐스 남성용 스케치 에어 코트 운동화 SL0MPCDX12
 
-![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/18/5/e0b81edd-17d0-47c5-9449-8c23d1e6889d.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/19/18/5/e0b81edd-17d0-47c5-9449-8c23d1e6889d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7279748046&traceid=V0-153&itemId=18583438973&vendorItemId=85719984503)
 
 
 👍 [스케쳐스 남성용 스케치 에어 코트 운동화 SL0MPCDX12 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7279748046&traceid=V0-153&itemId=18583438973&vendorItemId=85719984503) 👌 
@@ -45,7 +45,7 @@ pin: true
 
 ## 2. 스케쳐스 디 라이트 에어-쿨 메모리폼 여성용 운동화 896210-BKW
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bec3/e7e8c6c38cfc8713620cb62daef238829f92f54ec43bfa5bb1ba40cbdf5e.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/bec3/e7e8c6c38cfc8713620cb62daef238829f92f54ec43bfa5bb1ba40cbdf5e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089693&traceid=V0-153&itemId=20068861232&vendorItemId=87164675485)
 
 
 👍 [스케쳐스 디 라이트 에어-쿨 메모리폼 여성용 운동화 896210-BKW <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7593089693&traceid=V0-153&itemId=20068861232&vendorItemId=87164675485) 👌 
@@ -81,7 +81,7 @@ pin: true
 
 ## 4. 스케쳐스 남성용 밥스 유니티 운동화 SL0MCCDY301
 
-![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/08/10/7/db3d13b4-70a1-4309-8c58-45c02979e1bd.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/08/08/10/7/db3d13b4-70a1-4309-8c58-45c02979e1bd.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7517938783&traceid=V0-153&itemId=19712220969&vendorItemId=86816559177)
 
 
 👍 [스케쳐스 남성용 밥스 유니티 운동화 SL0MCCDY301 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7517938783&traceid=V0-153&itemId=19712220969&vendorItemId=86816559177) 👌 
@@ -99,7 +99,7 @@ pin: true
 
 ## 5. 밸롭 봄버 에어 초경량 어글리 슈즈 BA07010027
 
-![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1740803211770172-171bd7e1-105c-4011-ae9a-19fc5e88be68.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1740803211770172-171bd7e1-105c-4011-ae9a-19fc5e88be68.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1987806335&traceid=V0-153&itemId=3382110567&vendorItemId=71368762823)
 
 
 👍 [밸롭 봄버 에어 초경량 어글리 슈즈 BA07010027 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1987806335&traceid=V0-153&itemId=3382110567&vendorItemId=71368762823) 👌 
@@ -117,7 +117,7 @@ pin: true
 
 ## 6. 밸롭 티바트 4.0 워킹화 BA01010034
 
-![스케쳐스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/18/11/3/a6a39361-8fea-4793-ab96-eb6c5c891809.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/04/18/11/3/a6a39361-8fea-4793-ab96-eb6c5c891809.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276329566&traceid=V0-153&itemId=18568268500&vendorItemId=85705518767)
 
 
 👍 [밸롭 티바트 4.0 워킹화 BA01010034 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7276329566&traceid=V0-153&itemId=18568268500&vendorItemId=85705518767) 👌 
@@ -135,7 +135,7 @@ pin: true
 
 ## 7. 스케쳐스 맥스쿠셔닝 엘리트 2.0 여성 운동화 러닝화 발바닥편한 데일리화 초경량 장시간보행 발볼편한 #블랙
 
-![스케쳐스운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/415b/8c2e615390bb6cd472370b1a4d6d38de8fa331d1531be7baeaeaad945e23.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/415b/8c2e615390bb6cd472370b1a4d6d38de8fa331d1531be7baeaeaad945e23.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6732892271&traceid=V0-153&itemId=15692201473&vendorItemId=86798602141)
 
 
 👍 [스케쳐스 맥스쿠셔닝 엘리트 2.0 여성 운동화 러닝화 발바닥편한 데일리화 초경량 장시간보행 발볼편한 #블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6732892271&traceid=V0-153&itemId=15692201473&vendorItemId=86798602141) 👌 
@@ -153,7 +153,7 @@ pin: true
 
 ## 8. 보랏빛마을 스케쳐스 여성 아치핏 운동화 런닝화 149057(사은품 양말 증정)
 
-![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c22a/c8a80fbf2e480792a1e8222118cece73db599fecd8de118ce6314d01c33f.jpeg)
+[![스케쳐스운동화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/c22a/c8a80fbf2e480792a1e8222118cece73db599fecd8de118ce6314d01c33f.jpeg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6650965074&traceid=V0-153&itemId=15239942479&vendorItemId=82535229012)
 
 
 👍 [보랏빛마을 스케쳐스 여성 아치핏 운동화 런닝화 149057(사은품 양말 증정) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6650965074&traceid=V0-153&itemId=15239942479&vendorItemId=82535229012) 👌 
@@ -171,7 +171,7 @@ pin: true
 
 ## 9. 와이런 Gag 남성 소가죽 발편한 초경량 캐주얼화 G905
 
-![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/67f2/70136a81a2b611f071d2dccd205612ba6a0a026724bae255e8b9cdd4dbc6.jpg)
+[![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/67f2/70136a81a2b611f071d2dccd205612ba6a0a026724bae255e8b9cdd4dbc6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6805338242&traceid=V0-153&itemId=16081618630&vendorItemId=83279804453)
 
 
 👍 [와이런 Gag 남성 소가죽 발편한 초경량 캐주얼화 G905 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6805338242&traceid=V0-153&itemId=16081618630&vendorItemId=83279804453) 👌 
@@ -189,7 +189,7 @@ pin: true
 
 ## 10. 스케쳐스 남성 초경량 장시간 발편한 볼넓고 부드러운촉감 일상생활 가볍게 착용 조깅 워킹 운동화 SP0_MP-CD_Y011
 
-![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f46f/8bffa23bc3b70514d09fedc7f898b94e89c9bd83d30725696cc421feef42.png)
+[![스케쳐스운동화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f46f/8bffa23bc3b70514d09fedc7f898b94e89c9bd83d30725696cc421feef42.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7146219334&traceid=V0-153&itemId=17956206277&vendorItemId=85113630005)
 
 
 👍 [스케쳐스 남성 초경량 장시간 발편한 볼넓고 부드러운촉감 일상생활 가볍게 착용 조깅 워킹 운동화 SP0_MP-CD_Y011 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7146219334&traceid=V0-153&itemId=17956206277&vendorItemId=85113630005) 👌 

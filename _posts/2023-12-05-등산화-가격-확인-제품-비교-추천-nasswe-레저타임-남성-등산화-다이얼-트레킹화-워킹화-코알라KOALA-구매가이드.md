@@ -33,7 +33,7 @@ pin: true
 
 ## 1. 레저타임 남성 등산화 다이얼 트레킹화 워킹화 코알라(KOALA)
 
-![등산화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dfd2/3008b118101d60789f5c05274e1c686fddf6a2f1d3eee5b1fa2cb487b1b7.jpg)
+[![등산화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/dfd2/3008b118101d60789f5c05274e1c686fddf6a2f1d3eee5b1fa2cb487b1b7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7584779035&traceid=V0-153&itemId=20029351760&vendorItemId=87125913552)
 
 
 👍 [레저타임 남성 등산화 다이얼 트레킹화 워킹화 코알라(KOALA) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7584779035&traceid=V0-153&itemId=20029351760&vendorItemId=87125913552) 👌 
@@ -51,7 +51,7 @@ pin: true
 
 ## 2. K2 다이얼 안전화 베이지 K2-67S, 1세트
 
-![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/10/15/2/c26217bf-5fc5-4591-9b7a-db48b4ca1b95.jpg)
+[![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/03/10/15/2/c26217bf-5fc5-4591-9b7a-db48b4ca1b95.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7188479078&traceid=V0-153&itemId=18144221260&vendorItemId=85294616352)
 
 
 👍 [K2 다이얼 안전화 베이지 K2-67S, 1세트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7188479078&traceid=V0-153&itemId=18144221260&vendorItemId=85294616352) 👌 
@@ -69,7 +69,7 @@ pin: true
 
 ## 3. 레드페이스 고잔 매장특가 70%!! 사계절 공용 전문 등산화 "한국 지형에 강하다" 50년 레드페이스의 기술력 미끄럼방지창 완벽방수 방풍 슈퍼 기능성 등산화
 
-![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ebf6/fff93f06cb487a8c1c2c310bec5b410b60ddbb9c40ce84847d08f6dfa230.png)
+[![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/ebf6/fff93f06cb487a8c1c2c310bec5b410b60ddbb9c40ce84847d08f6dfa230.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6647559048&traceid=V0-153&itemId=15219852818&vendorItemId=82440804242)
 
 
 👍 [레드페이스 고잔 매장특가 70%!! 사계절 공용 전문 등산화 "한국 지형에 강하다" 50년 레드페이스의 기술력 미끄럼방지창 완벽방수 방풍 슈퍼 기능성 등산화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6647559048&traceid=V0-153&itemId=15219852818&vendorItemId=82440804242) 👌 
@@ -87,7 +87,7 @@ pin: true
 
 ## 4. 알타이카 남성용 등산 운동 작업 트레킹화 AT-01
 
-![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3724763345733577-799bf3a4-c277-4821-8e09-57c7356b1626.jpg)
+[![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/3724763345733577-799bf3a4-c277-4821-8e09-57c7356b1626.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1105280628&traceid=V0-153&itemId=2066507041&vendorItemId=70065687585)
 
 
 👍 [알타이카 남성용 등산 운동 작업 트레킹화 AT-01 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1105280628&traceid=V0-153&itemId=2066507041&vendorItemId=70065687585) 👌 
@@ -105,7 +105,7 @@ pin: true
 
 ## 5. 레저타임 웨일 남여공용 트레킹화 방수등산화
 
-![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/df6b/899ec15974b8dd9afe409624b51a2e67723fc6d41d98b063a0489876b480.jpg)
+[![등산화 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/df6b/899ec15974b8dd9afe409624b51a2e67723fc6d41d98b063a0489876b480.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7595292343&traceid=V0-153&itemId=20079230265&vendorItemId=86625454267)
 
 
 👍 [레저타임 웨일 남여공용 트레킹화 방수등산화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7595292343&traceid=V0-153&itemId=20079230265&vendorItemId=86625454267) 👌 
@@ -123,7 +123,7 @@ pin: true
 
 ## 6. 등산화 트래킹화 중등산화 작업화 등산화신발 추천 등산
 
-![등산화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/72be/e22a8a2c7a81e88e53286c6428bf53f17116556097907844cca18bfa4549.jpg)
+[![등산화 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/72be/e22a8a2c7a81e88e53286c6428bf53f17116556097907844cca18bfa4549.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7735963224&traceid=V0-153&itemId=20800599974&vendorItemId=87869689538)
 
 
 👍 [등산화 트래킹화 중등산화 작업화 등산화신발 추천 등산 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7735963224&traceid=V0-153&itemId=20800599974&vendorItemId=87869689538) 👌 
@@ -141,7 +141,7 @@ pin: true
 
 ## 7. ANYOU 아웃도어 미끄럼 방지 등산화 트레킹 등산화 등산화
 
-![등산화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/042d/1e83531b23a2f59c33ac0af0f5d1fcb2cfb7fec5afed29caa1a99be9158e.jpg)
+[![등산화 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/042d/1e83531b23a2f59c33ac0af0f5d1fcb2cfb7fec5afed29caa1a99be9158e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7595761504&traceid=V0-153&itemId=20081456917&vendorItemId=87439060938)
 
 
 👍 [ANYOU 아웃도어 미끄럼 방지 등산화 트레킹 등산화 등산화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7595761504&traceid=V0-153&itemId=20081456917&vendorItemId=87439060938) 👌 
@@ -159,7 +159,7 @@ pin: true
 
 ## 8. ANYOU 남성 등산화 캐주얼 고어텍스 가벼운 경량 트레킹화 발편한 미끄럼 방지 고급 등산화 전술화 아웃도어 워커 스니커즈 작업화 보아 시스템 키높이 등산화
 
-![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0fb0/1f2ac05fe877d1390057a658e2504c5d782f7f1f76ba8133edabf0379a71.jpg)
+[![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/0fb0/1f2ac05fe877d1390057a658e2504c5d782f7f1f76ba8133edabf0379a71.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563969339&traceid=V0-153&itemId=19933794596&vendorItemId=87033273236)
 
 
 👍 [ANYOU 남성 등산화 캐주얼 고어텍스 가벼운 경량 트레킹화 발편한 미끄럼 방지 고급 등산화 전술화 아웃도어 워커 스니커즈 작업화 보아 시스템 키높이 등산화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7563969339&traceid=V0-153&itemId=19933794596&vendorItemId=87033273236) 👌 
@@ -177,7 +177,7 @@ pin: true
 
 ## 9. 블랙야크 트레킹화 웨이21 가벼운 활동화 발편한 워킹화 통풍 작업 운동화
 
-![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1582/3c78ebc6215f6e044331fd4e81e70d354cad1389b35dd9d419f8876a808a.jpg)
+[![등산화 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1582/3c78ebc6215f6e044331fd4e81e70d354cad1389b35dd9d419f8876a808a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7490351011&traceid=V0-153&itemId=19585307168&vendorItemId=86692764103)
 
 
 👍 [블랙야크 트레킹화 웨이21 가벼운 활동화 발편한 워킹화 통풍 작업 운동화 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7490351011&traceid=V0-153&itemId=19585307168&vendorItemId=86692764103) 👌 
@@ -195,7 +195,7 @@ pin: true
 
 ## 10. 비엔트 하이탑 등산화 VVA 999840
 
-![등산화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/shgccfnf/e52126b5f76f410f998d3d8d1881b1ea.jpg)
+[![등산화 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/shgccfnf/e52126b5f76f410f998d3d8d1881b1ea.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5844140659&traceid=V0-153&itemId=10150730308&vendorItemId=77433428431)
 
 
 👍 [비엔트 하이탑 등산화 VVA 999840 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=5844140659&traceid=V0-153&itemId=10150730308&vendorItemId=77433428431) 👌 

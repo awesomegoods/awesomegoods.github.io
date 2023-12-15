@@ -31,7 +31,7 @@ pin: true
 
 ## 1. 루이까또즈 여성 블랙 소가죽 사봉 SAVON 크로스백 HQ3QT06FA9BL
 
-![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9c30/c05b7025e3e9524843aaf0790feefadfaec7822199c94757bc5e25728a03.png)
+[![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/9c30/c05b7025e3e9524843aaf0790feefadfaec7822199c94757bc5e25728a03.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7465929530&traceid=V0-153&itemId=19470546967&vendorItemId=86580797854)
 
 
 👍 [루이까또즈 여성 블랙 소가죽 사봉 SAVON 크로스백 HQ3QT06FA9BL <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7465929530&traceid=V0-153&itemId=19470546967&vendorItemId=86580797854) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 스위스톤 초경량 캐주얼 데일리 백팩 ST3A16
 
-![루이까또즈가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1c58/34fa128e4ff3443fd574e61e98e8d02f3534b45cbae61c3a19fd8bc25fa2.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/1c58/34fa128e4ff3443fd574e61e98e8d02f3534b45cbae61c3a19fd8bc25fa2.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7175263553&traceid=V0-153&itemId=18085458179&vendorItemId=85238161258)
 
 
 👍 [스위스톤 초경량 캐주얼 데일리 백팩 ST3A16 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7175263553&traceid=V0-153&itemId=18085458179&vendorItemId=85238161258) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. 루이까또즈 여성 가죽 가방 선물 크로스백
 
-![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/359c/00016e977100c91d179c795facd0deccbafbcd8d16b2f13673d271767690.png)
+[![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/359c/00016e977100c91d179c795facd0deccbafbcd8d16b2f13673d271767690.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7469266020&traceid=V0-153&itemId=19486518391&vendorItemId=86596466794)
 
 
 👍 [루이까또즈 여성 가죽 가방 선물 크로스백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7469266020&traceid=V0-153&itemId=19486518391&vendorItemId=86596466794) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 라온투유 격자 클러치백
 
-![루이까또즈가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/9l4a5ble/67e36b90e6c14d3a86889835181c7514.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/9l4a5ble/67e36b90e6c14d3a86889835181c7514.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6078107414&traceid=V0-153&itemId=11253254195&vendorItemId=78530312498)
 
 
 👍 [라온투유 격자 클러치백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6078107414&traceid=V0-153&itemId=11253254195&vendorItemId=78530312498) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. 마이폭스 보부상 데일리 노트북 태블릿 수납 쇼퍼백 빅사이즈가방 숄더백 TPB05 - 고급파우치 증정
 
-![루이까또즈가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5f5/8a2d54d55e1eebc21afe263ecaa9247a1d504afff0d76b52e930e403034d.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f5f5/8a2d54d55e1eebc21afe263ecaa9247a1d504afff0d76b52e930e403034d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674930859&traceid=V0-153&itemId=20484123857&vendorItemId=87563027142)
 
 
 👍 [마이폭스 보부상 데일리 노트북 태블릿 수납 쇼퍼백 빅사이즈가방 숄더백 TPB05 - 고급파우치 증정 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674930859&traceid=V0-153&itemId=20484123857&vendorItemId=87563027142) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 루이까또즈 여성 블랙 가죽 탑핸들 탈부착 스트랩 퀄팅 미니 버킷백 HN3FM07FB8BL
 
-![루이까또즈가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e9e9/5ea27b52c39f0102ae794546438f4ef0fb182b3a146d86efd56ff1c94a1f.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e9e9/5ea27b52c39f0102ae794546438f4ef0fb182b3a146d86efd56ff1c94a1f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7176574912&traceid=V0-153&itemId=18091436054&vendorItemId=85243956683)
 
 
 👍 [루이까또즈 여성 블랙 가죽 탑핸들 탈부착 스트랩 퀄팅 미니 버킷백 HN3FM07FB8BL <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7176574912&traceid=V0-153&itemId=18091436054&vendorItemId=85243956683) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 젠틀고릴라 코튼캔디 가방
 
-![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a410/bdca4e6c7e67b839e3ba1e56838fe7077f3c491d34593cadfa67168d41a9.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/a410/bdca4e6c7e67b839e3ba1e56838fe7077f3c491d34593cadfa67168d41a9.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240621849&traceid=V0-153&itemId=18396236782&vendorItemId=85476807067)
 
 
 👍 [젠틀고릴라 코튼캔디 가방 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7240621849&traceid=V0-153&itemId=18396236782&vendorItemId=85476807067) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 루이까또즈 여성 숄더백
 
-![루이까또즈가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6b1b/8bb4fe5e01d9293b86af24f8690fde24655c0c57a36f53e5f85ae312a527.jpg)
+[![루이까또즈가방 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/6b1b/8bb4fe5e01d9293b86af24f8690fde24655c0c57a36f53e5f85ae312a527.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138444713&traceid=V0-153&itemId=17917312676&vendorItemId=85079963985)
 
 
 👍 [루이까또즈 여성 숄더백 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7138444713&traceid=V0-153&itemId=17917312676&vendorItemId=85079963985) 👌 

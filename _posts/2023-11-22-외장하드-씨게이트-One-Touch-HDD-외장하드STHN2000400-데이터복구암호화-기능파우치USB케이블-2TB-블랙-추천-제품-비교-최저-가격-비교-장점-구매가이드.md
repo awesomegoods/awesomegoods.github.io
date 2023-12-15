@@ -29,7 +29,7 @@ pin: true
 
 ## 1. 씨게이트 One Touch HDD 외장하드STHN2000400 데이터복구+암호화 기능+파우치+USB케이블, 2TB, 블랙
 
-![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050415510240392-f2aa632e-85f2-4451-bd5f-052313577416.jpg)
+[![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050415510240392-f2aa632e-85f2-4451-bd5f-052313577416.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333)
 
 
 👍 [씨게이트 One Touch HDD 외장하드STHN2000400 데이터복구+암호화 기능+파우치+USB케이블, 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333) 👌 
@@ -47,7 +47,7 @@ pin: true
 
 ## 2. 삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/447726238412214-7c44d7ec-0eff-431b-98b1-f8001d774329.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/447726238412214-7c44d7ec-0eff-431b-98b1-f8001d774329.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575)
 
 
 👍 [삼성전자 외장하드 J3 + 파우치, 2048GB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155508&vendorItemId=84302847575) 👌 
@@ -65,7 +65,7 @@ pin: true
 
 ## 3. 씨게이트 One Touch HDD 외장하드STHN2000400 데이터복구+암호화 기능+파우치+USB케이블, 2TB, 블랙
 
-![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050415510240392-f2aa632e-85f2-4451-bd5f-052313577416.jpg)
+[![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1050415510240392-f2aa632e-85f2-4451-bd5f-052313577416.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333)
 
 
 👍 [씨게이트 One Touch HDD 외장하드STHN2000400 데이터복구+암호화 기능+파우치+USB케이블, 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=214068177&traceid=V0-153&itemId=12451172088&vendorItemId=4686504333) 👌 
@@ -83,7 +83,7 @@ pin: true
 
 ## 4. 샌디스크 Portable SSD E30, 1TB, 블랙
 
-![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)
+[![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/cff1/15e42fa83ea803f965a45e5b6a8c7cdc0fad24f3010e4c6b0dfff01690a1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486)
 
 
 👍 [샌디스크 Portable SSD E30, 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7494925942&traceid=V0-153&itemId=19606732994&vendorItemId=86713801486) 👌 
@@ -101,7 +101,7 @@ pin: true
 
 ## 5. 에이데이타 듀라블 외장하드 HD330 2TB, 블랙
 
-![외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/10/14/17/0/e30057f0-e2d8-4ec8-acc3-6163281e1c12.jpg)
+[![외장하드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2020/10/14/17/0/e30057f0-e2d8-4ec8-acc3-6163281e1c12.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3915286565&vendorItemId=71899833039)
 
 
 👍 [에이데이타 듀라블 외장하드 HD330 2TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3915286565&vendorItemId=71899833039) 👌 
@@ -119,7 +119,7 @@ pin: true
 
 ## 6. 에이데이타 듀라블 외장하드 HD330 1TB, 블랙
 
-![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4435606288707280-1cff8010-940d-414d-9494-5866c69c672c.jpg)
+[![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/4435606288707280-1cff8010-940d-414d-9494-5866c69c672c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3269541296&vendorItemId=71256563013)
 
 
 👍 [에이데이타 듀라블 외장하드 HD330 1TB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1925951760&traceid=V0-153&itemId=3269541296&vendorItemId=71256563013) 👌 
@@ -137,7 +137,7 @@ pin: true
 
 ## 7. 비잽 BZ33 HGST HDD USB3.0 외장하드, BZ33 500GB 블랙, 500GB, 블랙
 
-![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2513789237487068-4839bed0-a194-49fc-9816-e4e4a75ebe24.jpg)
+[![외장하드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2513789237487068-4839bed0-a194-49fc-9816-e4e4a75ebe24.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=355797889&vendorItemId=4491659917)
 
 
 👍 [비잽 BZ33 HGST HDD USB3.0 외장하드, BZ33 500GB 블랙, 500GB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=173252633&traceid=V0-153&itemId=355797889&vendorItemId=4491659917) 👌 
@@ -155,7 +155,7 @@ pin: true
 
 ## 8. 삼성전자 외장하드 J3 2TB 화이트
 
-![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f434/dcfb4c4f398aa4703f603504ccb342e8fb5edae799d6e8183997e248e86d.jpg)
+[![외장하드 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f434/dcfb4c4f398aa4703f603504ccb342e8fb5edae799d6e8183997e248e86d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=18728588289&vendorItemId=84302811413)
 
 
 👍 [삼성전자 외장하드 J3 2TB 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=18728588289&vendorItemId=84302811413) 👌 
@@ -173,7 +173,7 @@ pin: true
 
 ## 9. 에이데이타 듀라블 외장하드 HD330 1TB + 하드케이스, 블랙
 
-![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/6axcwrcl/b22ceb2050c24fdc97e8d98ceaa7d710.jpg)
+[![외장하드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/rs_quotation_api/6axcwrcl/b22ceb2050c24fdc97e8d98ceaa7d710.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4926006678&traceid=V0-153&itemId=6464324356&vendorItemId=73758738802)
 
 
 👍 [에이데이타 듀라블 외장하드 HD330 1TB + 하드케이스, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=4926006678&traceid=V0-153&itemId=6464324356&vendorItemId=73758738802) 👌 
@@ -191,7 +191,7 @@ pin: true
 
 ## 10. 삼성전자 외장하드 J3 + 파우치, 1024GB, 블랙
 
-![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/748d/87cfdea1bb5a59323a6b584f6af35cfdac869e17e52140a010f12e9d7ca1.jpg)
+[![외장하드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/748d/87cfdea1bb5a59323a6b584f6af35cfdac869e17e52140a010f12e9d7ca1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155494&vendorItemId=84688045508)
 
 
 👍 [삼성전자 외장하드 J3 + 파우치, 1024GB, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=14820708&traceid=V0-153&itemId=61155494&vendorItemId=84688045508) 👌 

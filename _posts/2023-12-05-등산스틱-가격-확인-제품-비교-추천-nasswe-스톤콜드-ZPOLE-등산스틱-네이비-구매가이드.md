@@ -35,7 +35,7 @@ pin: true
 
 ## 1. 스톤콜드 Z-POLE 등산스틱, 네이비
 
-![등산스틱 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1145621805967976-0efe177d-2f04-4fef-8b87-d1f7b69dc54f.jpg)
+[![등산스틱 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/1145621805967976-0efe177d-2f04-4fef-8b87-d1f7b69dc54f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390963561&traceid=V0-153&itemId=19108591191&vendorItemId=86284537498)
 
 
 👍 [스톤콜드 Z-POLE 등산스틱, 네이비 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7390963561&traceid=V0-153&itemId=19108591191&vendorItemId=86284537498) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. 트렉스타 어코드 3단 초경량 등산스틱 2p + 케이스 세트, 블랙 + 블루
 
-![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/08/13/4/5b9ddcec-134b-4442-bd9f-249c5b22224f.jpg)
+[![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/08/13/4/5b9ddcec-134b-4442-bd9f-249c5b22224f.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=296657281&traceid=V0-153&itemId=935194631&vendorItemId=85904713574)
 
 
 👍 [트렉스타 어코드 3단 초경량 등산스틱 2p + 케이스 세트, 블랙 + 블루 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=296657281&traceid=V0-153&itemId=935194631&vendorItemId=85904713574) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. TREX 두랄루민 경량 4단 등산스틱 2P, TREX 등산스틱 T자형_블랙(2P)
 
-![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e0f5/87865c0c37724f645b300a216db39a3747f7c07b95bbf58b1ae4ac8fb8e1.jpg)
+[![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/e0f5/87865c0c37724f645b300a216db39a3747f7c07b95bbf58b1ae4ac8fb8e1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108216974&traceid=V0-153&itemId=16623970503&vendorItemId=79142758243)
 
 
 👍 [TREX 두랄루민 경량 4단 등산스틱 2P, TREX 등산스틱 T자형_블랙(2P) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6108216974&traceid=V0-153&itemId=16623970503&vendorItemId=79142758243) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 미앤아이 두랄루민 초경량 5단 등산스틱 2P 세트, 접이식 등산스틱 블랙(Black)
 
-![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f34a/ab03c8b6306919c4ae4421b8a9d273471503c110df26492f32fe3bce86ad.jpg)
+[![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/f34a/ab03c8b6306919c4ae4421b8a9d273471503c110df26492f32fe3bce86ad.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225810357&traceid=V0-153&itemId=18322355831&vendorItemId=85467097415)
 
 
 👍 [미앤아이 두랄루민 초경량 5단 등산스틱 2P 세트, 접이식 등산스틱 블랙(Black) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7225810357&traceid=V0-153&itemId=18322355831&vendorItemId=85467097415) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. SABU 초경량 듀랄루민 등산스틱 노르딕워킹스틱 2p, 숏, 퍼플
 
-![등산스틱 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5fc7/f722d28361e14d084c7a41f9c7330b1f0a3fc9037c62a336480070493072.jpg)
+[![등산스틱 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/5fc7/f722d28361e14d084c7a41f9c7330b1f0a3fc9037c62a336480070493072.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6047913786&traceid=V0-153&itemId=11076606684&vendorItemId=81541994148)
 
 
 👍 [SABU 초경량 듀랄루민 등산스틱 노르딕워킹스틱 2p, 숏, 퍼플 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6047913786&traceid=V0-153&itemId=11076606684&vendorItemId=81541994148) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. Reminox 초경량 등산스틱 듀랄루민 7075 2개, 블랙(EVA폼 손잡이)
 
-![등산스틱 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/04/10/4/8d31b2d5-ae51-41c9-82d8-8906d0ae247d.jpg)
+[![등산스틱 TOP01](https://thumbnail6.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/04/10/4/8d31b2d5-ae51-41c9-82d8-8906d0ae247d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7342098162&traceid=V0-153&itemId=18750657515&vendorItemId=85869328330)
 
 
 👍 [Reminox 초경량 등산스틱 듀랄루민 7075 2개, 블랙(EVA폼 손잡이) <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7342098162&traceid=V0-153&itemId=18750657515&vendorItemId=85869328330) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. [네카실] 일상 3단 두랄루민 등산스틱 2개, 블랙
 
-![등산스틱 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7d27/55cc6157787f5136bc306e67db534979abdc7477a814496fe9ba684b37ed.jpg)
+[![등산스틱 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/7d27/55cc6157787f5136bc306e67db534979abdc7477a814496fe9ba684b37ed.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249177026&traceid=V0-153&itemId=18436078169&vendorItemId=85589227246)
 
 
 👍 [[네카실] 일상 3단 두랄루민 등산스틱 2개, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7249177026&traceid=V0-153&itemId=18436078169&vendorItemId=85589227246) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. 트렉스타 어코드 3단 초경량 등산스틱 2p + 케이스 세트, 블랙 + 그레이
 
-![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/08/13/0/4b9b3dbc-bbd5-47c6-a6a6-39c53377180b.jpg)
+[![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/retail/images/2023/05/08/13/0/4b9b3dbc-bbd5-47c6-a6a6-39c53377180b.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=296657281&traceid=V0-153&itemId=935194636&vendorItemId=85904713592)
 
 
 👍 [트렉스타 어코드 3단 초경량 등산스틱 2p + 케이스 세트, 블랙 + 그레이 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=296657281&traceid=V0-153&itemId=935194636&vendorItemId=85904713592) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. TANTAN 등산스틱 2개 1세트 두랄루민 7075 튼튼한 접이식 5단 폴대 지팡이 노르딕 워킹, 무광블랙
 
-![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/239f/4f5b91b2b8498639aba459d9b2f867c344f73a1316c2dfd04aa708f5bc79.jpg)
+[![등산스틱 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/239f/4f5b91b2b8498639aba459d9b2f867c344f73a1316c2dfd04aa708f5bc79.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640268074&traceid=V0-153&itemId=20298374833&vendorItemId=86939482846)
 
 
 👍 [TANTAN 등산스틱 2개 1세트 두랄루민 7075 튼튼한 접이식 5단 폴대 지팡이 노르딕 워킹, 무광블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7640268074&traceid=V0-153&itemId=20298374833&vendorItemId=86939482846) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. BRAHUB 코르크 EVA 손잡이 5단 접이식 등산스틱 2P + 스틱케이스, 블랙
 
-![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/73f5/c2c754c51d519621e22415e9ba5cade6e86df2a949e0f84dfa4b3ea371e4.jpg)
+[![등산스틱 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/490x490ex/image/vendor_inventory/73f5/c2c754c51d519621e22415e9ba5cade6e86df2a949e0f84dfa4b3ea371e4.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181292706&traceid=V0-153&itemId=18112239267&vendorItemId=87475709449)
 
 
 👍 [BRAHUB 코르크 EVA 손잡이 5단 접이식 등산스틱 2P + 스틱케이스, 블랙 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7181292706&traceid=V0-153&itemId=18112239267&vendorItemId=87475709449) 👌 

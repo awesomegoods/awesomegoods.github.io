@@ -35,7 +35,7 @@ pin: true
 
 ## 1. ASRock DeskMini X300 120W 대원씨티에스 (베어본)/HDMI/DP포트/USB확장케이블증정/미니PC/벽걸이PC
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455744905&traceid=V0-153&itemId=19421290564&vendorItemId=86532771553)
 
 
 👍 [ASRock DeskMini X300 120W 대원씨티에스 (베어본)/HDMI/DP포트/USB확장케이블증정/미니PC/벽걸이PC <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7455744905&traceid=V0-153&itemId=19421290564&vendorItemId=86532771553) 👌 
@@ -53,7 +53,7 @@ pin: true
 
 ## 2. 한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1952/9d50272c9e0fe85a549dbdcd767c343061391c910f10f384976f4fd1444f.png)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186)
 
 
 👍 [한뼘 컴퓨터 미니 PC 사무용 가정용 주식용 소형 피씨 초미니 데스크탑 올인원 본체, 16GB, 256GB <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7195245734&traceid=V0-153&itemId=18175254287&vendorItemId=85324477186) 👌 
@@ -71,7 +71,7 @@ pin: true
 
 ## 3. 한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 256GB, 12세대 N100
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2253/90e027a96ab870ca903827230adf1d031756f3832e226ec9d7dc85b573a7.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2253/90e027a96ab870ca903827230adf1d031756f3832e226ec9d7dc85b573a7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606691&vendorItemId=87835921876)
 
 
 👍 [한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 256GB, 12세대 N100 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606691&vendorItemId=87835921876) 👌 
@@ -89,7 +89,7 @@ pin: true
 
 ## 4. 미니 PC FIREBAT T8 프로 플러스 인텔 셀러론 N5095 N100 데스크탑 게이밍 컴퓨터 8GB 16GB 256GB 512GB DDR4 DDR5 WIFI5 BT42, 없음, 4.N100 16G 512G EU
 
-![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b1d/f086ae725e0a2710d8e929e5285a2f98961ef6a641b030463f6c3e349153.jpg)
+[![미니pc TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/9b1d/f086ae725e0a2710d8e929e5285a2f98961ef6a641b030463f6c3e349153.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704388412&traceid=V0-153&itemId=20635996924&vendorItemId=87764661171)
 
 
 👍 [미니 PC FIREBAT T8 프로 플러스 인텔 셀러론 N5095 N100 데스크탑 게이밍 컴퓨터 8GB 16GB 256GB 512GB DDR4 DDR5 WIFI5 BT42, 없음, 4.N100 16G 512G EU <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7704388412&traceid=V0-153&itemId=20635996924&vendorItemId=87764661171) 👌 
@@ -107,7 +107,7 @@ pin: true
 
 ## 5. 한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 128GB, 11세대 N5105
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2253/90e027a96ab870ca903827230adf1d031756f3832e226ec9d7dc85b573a7.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/2253/90e027a96ab870ca903827230adf1d031756f3832e226ec9d7dc85b573a7.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606699&vendorItemId=87835921885)
 
 
 👍 [한손컴 미니 PC 컴퓨터 본체 사무용 초소형 소형 MINI 피씨 데스크탑 올인원 win11, 8GB, 128GB, 11세대 N5105 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7685504231&traceid=V0-153&itemId=20537606699&vendorItemId=87835921885) 👌 
@@ -125,7 +125,7 @@ pin: true
 
 ## 6. ASRock DeskMini X300 120W 대원씨티에스 /AMD 5600G CPU + 16GB RAM + 500GB (NVMe SSD) 추가/USB 확장포트증정/벽걸이가능
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716827105&traceid=V0-153&itemId=20699162727&vendorItemId=86556498231)
 
 
 👍 [ASRock DeskMini X300 120W 대원씨티에스 /AMD 5600G CPU + 16GB RAM + 500GB (NVMe SSD) 추가/USB 확장포트증정/벽걸이가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7716827105&traceid=V0-153&itemId=20699162727&vendorItemId=86556498231) 👌 
@@ -143,7 +143,7 @@ pin: true
 
 ## 7. 갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10, 기본형
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/ac44/c80f849175d69965af33f0f36df84a0d938228f56b808b6e5d6610bc148d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159)
 
 
 👍 [갓성비 초소형 미니PC i3 사무용 가정용 컴퓨터 본체 루컴즈 데스크탑 윈도우10, 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7500550593&traceid=V0-153&itemId=19633347714&vendorItemId=86739730159) 👌 
@@ -161,7 +161,7 @@ pin: true
 
 ## 8. GEEKOM 미니PC MiniAir 11 (셀러론 N5095 WIN11 Home SSD 256GB DDR4 8GB), 기본형
 
-![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)
+[![미니pc TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/08/28/15/6/3bc00412-7d0c-4166-a838-12c218e2f14c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652)
 
 
 👍 [GEEKOM 미니PC MiniAir 11 (셀러론 N5095 WIN11 Home SSD 256GB DDR4 8GB), 기본형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7558809531&traceid=V0-153&itemId=19909276495&vendorItemId=87009218652) 👌 
@@ -179,7 +179,7 @@ pin: true
 
 ## 9. ASRock DeskMini X300 120W 대원씨티에스 /AMD 5600G CPU + 16GB RAM + 1TB (NVMe SSD) 추가/USB 확장포트증정/벽걸이가능
 
-![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)
+[![미니pc TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/b479/4edf7e595044be9fa562f408ac77218568883512e2f4238f15e86b64d44c.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674483490&traceid=V0-153&itemId=20482013126&vendorItemId=87187015773)
 
 
 👍 [ASRock DeskMini X300 120W 대원씨티에스 /AMD 5600G CPU + 16GB RAM + 1TB (NVMe SSD) 추가/USB 확장포트증정/벽걸이가능 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7674483490&traceid=V0-153&itemId=20482013126&vendorItemId=87187015773) 👌 
@@ -197,7 +197,7 @@ pin: true
 
 ## 10. ASRock DeskMini X300 120W 더큰솔루션
 
-![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84c1/d4fe781b3046a20b8285417bde535740f892fd5670a9a064e8d81a4d9fbf.jpg)
+[![미니pc TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/84c1/d4fe781b3046a20b8285417bde535740f892fd5670a9a064e8d81a4d9fbf.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251177783&traceid=V0-153&itemId=18445964342&vendorItemId=86419973573)
 
 
 👍 [ASRock DeskMini X300 120W 더큰솔루션 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7251177783&traceid=V0-153&itemId=18445964342&vendorItemId=86419973573) 👌 

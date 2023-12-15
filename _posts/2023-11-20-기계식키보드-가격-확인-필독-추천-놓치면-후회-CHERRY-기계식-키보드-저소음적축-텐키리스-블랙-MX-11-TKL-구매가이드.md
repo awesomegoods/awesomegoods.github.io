@@ -31,7 +31,7 @@ pin: true
 
 ## 1. CHERRY 기계식 키보드 저소음적축, 텐키리스, 블랙, MX 1.1 TKL
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/15/14/2/d78097cd-9091-4a6d-a136-146089aed02a.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/06/15/14/2/d78097cd-9091-4a6d-a136-146089aed02a.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7403066499&traceid=V0-153&itemId=19165314567&vendorItemId=86283713035)
 
 
 👍 [CHERRY 기계식 키보드 저소음적축, 텐키리스, 블랙, MX 1.1 TKL <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7403066499&traceid=V0-153&itemId=19165314567&vendorItemId=86283713035) 👌 
@@ -49,7 +49,7 @@ pin: true
 
 ## 2. COX 기계식 게이밍 키보드 갈축, 그레이 + 화이트, CK01 TKL, 텐키리스
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115412&traceid=V0-153&itemId=17741234289&vendorItemId=84905862540)
 
 
 👍 [COX 기계식 게이밍 키보드 갈축, 그레이 + 화이트, CK01 TKL, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115412&traceid=V0-153&itemId=17741234289&vendorItemId=84905862540) 👌 
@@ -67,7 +67,7 @@ pin: true
 
 ## 3. 한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision, 화이트
 
-![기계식키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2516749177063517-03fb0ca8-53c2-4437-9eef-efbb973b74b1.jpg)
+[![기계식키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2516749177063517-03fb0ca8-53c2-4437-9eef-efbb973b74b1.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=18918159629&vendorItemId=3123702192)
 
 
 👍 [한성컴퓨터 멤브레인 게이밍 유선키보드, 일반형, GTune MBF77 Vision, 화이트 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6075217003&traceid=V0-153&itemId=18918159629&vendorItemId=3123702192) 👌 
@@ -85,7 +85,7 @@ pin: true
 
 ## 4. COX 기계식 게이밍 키보드 적축, 그레이 + 화이트, CK01 TKL, 텐키리스
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/bwzrjelu/7db253d545754bedabeac0ec88facd58.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115416&traceid=V0-153&itemId=17741234309&vendorItemId=84905862545)
 
 
 👍 [COX 기계식 게이밍 키보드 적축, 그레이 + 화이트, CK01 TKL, 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7104115416&traceid=V0-153&itemId=17741234309&vendorItemId=84905862545) 👌 
@@ -103,7 +103,7 @@ pin: true
 
 ## 5. 체리 마이 보드 3.0S 기계식 갈축 키보드, G80-3870LUAKR-2, 블랙, 일반형
 
-![기계식키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4436094601737710-35cc1baa-5325-4304-9106-13b258858151.jpg)
+[![기계식키보드 TOP01](https://thumbnail10.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/4436094601737710-35cc1baa-5325-4304-9106-13b258858151.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1570705627&traceid=V0-153&itemId=2685870619&vendorItemId=70676353933)
 
 
 👍 [체리 마이 보드 3.0S 기계식 갈축 키보드, G80-3870LUAKR-2, 블랙, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=1570705627&traceid=V0-153&itemId=2685870619&vendorItemId=70676353933) 👌 
@@ -121,7 +121,7 @@ pin: true
 
 ## 6. NUPHY Halo65 무선 유선 블루투스 기계식 키보드 베이비 캥거루 축 사무용 게임용, 아이오닉 화이트(베이비 캥거루 축), 텐키리스
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1789/34681e94004a7d9bbeaeba965d0a80a8a64b7ebe5a06cddc5eb4a560b7e6.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/vendor_inventory/1789/34681e94004a7d9bbeaeba965d0a80a8a64b7ebe5a06cddc5eb4a560b7e6.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7385024086&traceid=V0-153&itemId=19081071959&vendorItemId=86203441616)
 
 
 👍 [NUPHY Halo65 무선 유선 블루투스 기계식 키보드 베이비 캥거루 축 사무용 게임용, 아이오닉 화이트(베이비 캥거루 축), 텐키리스 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7385024086&traceid=V0-153&itemId=19081071959&vendorItemId=86203441616) 👌 
@@ -139,7 +139,7 @@ pin: true
 
 ## 7. 앱코 HACKER K516 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 청축, ABKO HACKER K516, 레드, 일반형
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/862358957957994-b0fad182-f764-41f5-b255-f455d348793d.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/862358957957994-b0fad182-f764-41f5-b255-f455d348793d.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=310171394&traceid=V0-153&itemId=955704675&vendorItemId=5353106140)
 
 
 👍 [앱코 HACKER K516 축교환 측면 RGB 라이팅 이중사출 게이밍 기계식 키보드 청축, ABKO HACKER K516, 레드, 일반형 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=310171394&traceid=V0-153&itemId=955704675&vendorItemId=5353106140) 👌 
@@ -157,7 +157,7 @@ pin: true
 
 ## 8. 앱코 K517 레트로 기계식 게이밍 유선키보드 갈축, 일반형, 레트로 베이지
 
-![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/18/17/8/2a767fea-34cb-44b5-9f44-99c43fca0311.jpg)
+[![기계식키보드 TOP01](https://thumbnail9.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/2023/05/18/17/8/2a767fea-34cb-44b5-9f44-99c43fca0311.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343002878&traceid=V0-153&itemId=18877974990&vendorItemId=86006516699)
 
 
 👍 [앱코 K517 레트로 기계식 게이밍 유선키보드 갈축, 일반형, 레트로 베이지 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7343002878&traceid=V0-153&itemId=18877974990&vendorItemId=86006516699) 👌 
@@ -175,7 +175,7 @@ pin: true
 
 ## 9. 에이투 게이밍 LED 기계식 적축 키보드 USB 리니어, 일반형, 블랙, AG0302
 
-![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8924512073033226-07f418ff-c542-4d15-b909-89a711ea73bc.jpg)
+[![기계식키보드 TOP01](https://thumbnail8.coupangcdn.com/thumbnails/remote/230x230ex/image/retail/images/8924512073033226-07f418ff-c542-4d15-b909-89a711ea73bc.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6764000977&traceid=V0-153&itemId=15859702694&vendorItemId=83396841154)
 
 
 👍 [에이투 게이밍 LED 기계식 적축 키보드 USB 리니어, 일반형, 블랙, AG0302 <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=6764000977&traceid=V0-153&itemId=15859702694&vendorItemId=83396841154) 👌 
@@ -193,7 +193,7 @@ pin: true
 
 ## 10. 조이트론 청축 게이밍 기계식 키보드, 블랙, 일반형, JTMK-200L
 
-![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/p6tphon5/094644b2282f4615b7e67bc7769d955e.jpg)
+[![기계식키보드 TOP01](https://thumbnail7.coupangcdn.com/thumbnails/remote/230x230ex/image/rs_quotation_api/p6tphon5/094644b2282f4615b7e67bc7769d955e.jpg)](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144482085&traceid=V0-153&itemId=18265062393&vendorItemId=85411470453)
 
 
 👍 [조이트론 청축 게이밍 기계식 키보드, 블랙, 일반형, JTMK-200L <font color=red> 지금 바로 클릭!! 회원가격 바로 확인 </font> ](https://link.coupang.com/re/AFFSDP?lptag=AF3617701&subid=GithubCoopas&pageKey=7144482085&traceid=V0-153&itemId=18265062393&vendorItemId=85411470453) 👌 
